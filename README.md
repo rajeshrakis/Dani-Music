@@ -32,7 +32,7 @@
 
 
 <p align="center">
-  <img src="https://graph.org/Rolax-02-17">
+  <img src="https://graph.org/file/1c799106853a588c6af20.jpg">
 </p>
 
 **𝙏𝙀𝙎𝙏 𝘽𝙊𝙏 ➣ [𝄟ॐ❥𝗧𝗚🍷𝗩𝗖🌷𝗕𝗢𝗧❥𝄟⃟🥀](https://t.me/TG_VC_BOT)**
